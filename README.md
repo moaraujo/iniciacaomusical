@@ -6,4 +6,4 @@ Estou disponibilizando aqui uma apostila completa para iniciação musical, engl
 
 Obrigado a todos, bons estudos.
 
-Se quiser enviar sugestões de alteração, o faça pelo e-mail: moaraujo_ms@hotmail.com
+Se quiser enviar sugestões de alteração, o faça pelo e-mail: moaraujo.ms@gmail.com
